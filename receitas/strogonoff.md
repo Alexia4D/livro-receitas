@@ -19,7 +19,7 @@
 
 
 
-### Modo de Preparo 
+### Modo de Preparo 🍴👩🏼‍🍳
 
 1. Em um recipiente, misture a carne com a pimenta-do-reino.
 2. Em uma frigideira grande, derreta 2 colheres de sopa da manteiga e doure a carne, aos poucos, em fogo alto.
